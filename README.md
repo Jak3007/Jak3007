@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jak3007
 - 👀 I’m interested in programming, weight training and video games
 - 🌱 I’m currently learning HTML
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing atm
 - 📫 How to reach me Jak3007@telemarkfylke.no
 - 😄 Pronouns: He/bc/i`ll/never/be/him
 - ⚡ Fun fact: Im fat
